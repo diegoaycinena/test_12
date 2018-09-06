@@ -1,5 +1,5 @@
 Now the job is the create conflict.
-I will add traditional Chinsese to get this.  
+Not Chinese, Spanish is the language for conflict. Español para los conflictos!  
 這是繁體中文 哈哈哈
 
 I am Joseph, and this is the change I made.
